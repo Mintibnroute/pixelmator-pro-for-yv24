@@ -1,4 +1,4 @@
-# 
+# Enhance Pixelmator Pro for macOS with Pixelmator Pro for macOS professional Template: shortcut customization & masking tools, the #1 template. Includes shortcut customization and
 
 
 
